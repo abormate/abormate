@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @abormate or Abe to all my friends and family members.
-- 👀 I’m interested in Python, SQL, and JS
+- 👀 I’m interested in Python, SQL, JS, food, and good doggos.
 - 🌱 I’m currently learning Data Analytics and Engineering
-- 💞️ I’m looking to collaborate about Data Analytics and Engineering
+- 💞️ I’m looking to collaborate about doing some good with Tech.
 - 📫 How to reach me, write me: abe (dot) bormate (at) gmail (dot) com
 
 <!---
