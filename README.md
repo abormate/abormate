@@ -1,6 +1,6 @@
-- 👋  Hello there, I’m Abraham, or Abe ('/Ah-beh/') to all my friends, co-workers, and family members.
-- 👀  I’m interested in growing my skills to help solve problems with code, sparingly I cook simple home-cooked foods, and often watch goofy doggo vids online (and sometimes cattos, also).
-- 🌱  I’m learning further about Data Analytics, & Cloud engineering (like how to set up & maintain Infra).
+- 👋  Hello there, how are you doing? My name is Abraham, or Abe ('/Ah-beh/') to everybody.
+- 👀  I’m a Filipino Web Analyst from the Philippines. And am interested in growing skills to help solve problems, and support responsible organizations. Sparingly, I cook some simple home-cooked foods, and more often watch goofy doggo videos online (and sometimes cattos, also). :D
+- 🌱  I’m learning & studying about Data Analytics, & Cloud engineering (like how it is to set up & maintain Infra).
 - 💞️  I’m looking to find stable, long-term work, collaborate with others, and help do some good with Technology.
 - 📫  Need to speak with me? Please write me an email thru: abe (dot) bormate (at) gmail (dot) com
 
