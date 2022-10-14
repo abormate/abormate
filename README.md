@@ -1,7 +1,7 @@
 - 👋  Hello there, how are you doing? My name is Abraham, or Abe ('/Ah-beh/') to everybody.
-- 💻  I’m a Filipino Web Analyst (on the side, a learner as a Cloud DevOps engineer - aspirant) from the Philippines. And I'm interested in growing relevant skills to help solve problems, and support the growth of responsible organizations. Sparingly, I cook simple dishes. I like most home-cooked foods (I love food & beverage). And more often, I love watching goofy doggo videos online (and sometimes, also a few catto vids put in there, too). :^D
-- 🌱  Abe is committed to keep learning & gradually but continually up-skill around Web Analytics (mostly GA/GTM) & a few areas of Cloud engineering (like how it is to set up & maintain reliable infra).
-- 💞️  I’m looking to find stable, long-term work in order to collaborate with others. And help do some good with technology.
+- 💻  I’m a Filipino Web Analyst (on the side, also a learner of practicing Cloud DevOps engineering - an aspirant, to become an engineer) from the Philippines. Slowly, I'm growing relevant skills in order to help solve some technical problems, and in the process help support the sustained growth of responsible organizations. For me, I like most home-cooked foods (I love food & beverage). More often, I watch goofy doggo videos online (and sometimes, also a few catto vids put in there, too). :^D
+- 🌱  Abe is committed to keep learning & to gradually but continually up-skill around Web Analytics (GA/GTM) & a few other adjacent areas of the Cloud -- like DevOps engineering (he's able to set up & maintain reliable infra, run a Continuous Integration/Deployment workflow, etcetera).
+- 💞️  For me, I’m looking to find meaningful work to help me gain security, and also, in order to collaborate with others to do some good with Technology.
 - 📫  Need to speak with me? Please write me an email & send it thru: "abraham" (at) "learnersjourney" (dot) "net". Thank you.
 
 <!---
