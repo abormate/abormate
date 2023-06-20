@@ -6,7 +6,8 @@
 - 🌱  Learner Abe is committed to learning. He gradually but continually up-skills with study and training, around some areas of Cloud computing. Particularly in areas that allow him to grow practical engineering skills in software delivery and balancing this with reliability. Broadly speaking, he wants to help connect I.T. with helping do good for other people.
 - 💞️  For me, I’m looking to find stable but meaningful work to help me gain security: to help family, to provide for my own needs and wants, and also, to grow enough to become helpful. Aligned with this, I do want to collaborate with others in order to do some good with what we can do with technology.
 - 📫  Friend, if you need to speak with me. Please write me an email and kindly send it across: "abraham" (at) "learnersjourney" (dot) "net". Please no spam, okay? Thanks! Gracias! Salamat po!
-- May the Lord our God be glorified in all things. My friends, I do believe in God. And I believe we are put here to serve the Lord our God, through helping (where possible, and with the right heart) our loved-ones, and other people we meet in our journey. Glory and praise to God.
+- May the Lord our God be glorified in all things. My friends, I do believe in God. And I believe we are put here to serve God, through helping people -- our loved-ones, and other people we meet in our journey (doing so, where possible, with the right heart) .
+- Glory and praise to God. Long live, Christ Jesus our King!
 
 <!---
 abormate/abormate is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
