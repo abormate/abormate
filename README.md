@@ -7,7 +7,7 @@
 - 🌱  Learner Abe is committed to learning. He gradually but continually up-skills with study and training, around some areas of Cloud computing. Particularly in areas that allow him to grow practical engineering skills in software delivery and balancing this with stability. Broadly speaking, he wants to help connect I.T. with helping do good for other people.
 - 💞️  For me, I’m looking to find stable but meaningful work to help me gain security: to help family, to provide for my needs and wants, and also, to grow enough to become helpful. Aligned with this, I do want to collaborate with others in order to do some good with what we can do with technology.
 - 📫  Friend, if you need to speak with me. Please write me an email and kindly send it across: "abraham" (at) "learnersjourney" (dot) "net". Please no spam, okay? Thanks! Gracias! Salamat po!
-- May the Lord our God be glorified in all things. I do believe in God. And we are alive for a purpose to serve God, through helping people. This means helping our family, our loved-ones, and also other people we meet in our journey. (We need to help others -- with the right heart).
+- My friends, we give the glory to God. May the Lord our God be glorified in all things -- with our words, our actions, and accomplishments. For friends, it is only right for us to do so. I do believe in God. And I think we are alive for the purpose to serve God, through helping other people with what we're able to contribute. For me, this means helping our own family, our loved-ones, and also other people we meet in our journey. (We need to help others -- with the right heart and intent).
 - Glory and praise to God. Long live, Jesus Christ our Redeemer and our King!
 
 <!---
