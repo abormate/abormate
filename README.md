@@ -8,7 +8,7 @@
 - 💞️  For me, I’m looking to find stable but meaningful work to help me gain security: to help family, to provide for my needs and wants, and also, to grow enough to become helpful. Aligned with this, I do want to collaborate with others in order to do some good with what we can do with technology.
 - 📫  Friend, if you need to speak with me. Please write me an email and kindly send it across: "abraham" (at) "learnersjourney" (dot) "net". Please no spam, okay? Thanks! Gracias! Salamat po!
 - My friends, we give the glory to God. May the Lord our God be glorified in all things -- with our words, our actions, and accomplishments. For friends, it is only right for us to do so. I do believe in God. And I think we are alive for the purpose to serve God, through helping other people with what we're able to contribute. For me, this means helping our own family, our loved-ones, and also other people we meet in our journey. (We need to help others -- with the right heart and intent).
-- Glory and praise to God. Long live, Jesus Christ our Redeemer and our King!
+- Glory and praise to God. Long live, Jesus Christ our Lord, our great Teacher, and Redeemer, and our King!
 
 <!---
 abormate/abormate is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
