@@ -6,8 +6,6 @@
 
 -- 🛣️ Friends, our shared journey, for us to be able to grow enough to stay helpful, we must embrace continual learning, self-education, and do training. We must up-skill while we're working to earn a living. My friends, I have some work experience as a web developer some time ago. This was followed with being given an opportunity to work as a technical web analyst. However, like you, and anyone else, I still need to do continual training in order to learn and keep up with changes in this vast field This is, in order to remain relevant in an ever-changing job market, and tech landscape.
 
--- ⛪ Moving beyond work. I'm still working to become a practicing Catholic man. I'm a family man, and I believe in God. And my friends, for me, a lifetime of trying won't be enough to become what I could call a truly practicing Catholic. My brothers and sisters, we desperately need God in all things in life, and beyond this life. We need His blessing in everything we do and say. And I now understand that taken apart from the Lord's graces, mercy, and God's continual help -- my friends, we are truly helpless. Without God, we are nothing. We constantly need God's mercy, grace, and help. If we choose to become disciples of the good Shepherd, our Lord Jesus, the Christ. We need to remain in the Lord our God's flock of sheep, rams, lambs, and ewes. 🕊🐑
-
 -- 💞️ And if you are someone who's looking to hire an additional member to your work team. I’m looking to find stable, but meaningful work in computer I.T. At the time of writing, this mid October 2024, I'm busy looking for a job.
 
 -- 📫 Friends, if you need to talk to me. Please reach out and write me an email. Thanks!
