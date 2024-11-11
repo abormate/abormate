@@ -6,7 +6,7 @@
 
 -- 💞️ And if it happens, you're someone who's looking to hire more hands to your team. Friend, I’m looking to find livelihood with what I can help do. Something that, I hope creates good meaning. From out of service, to help and elevate other people around us.
 
--- 📫 Friends, if you need to talk to me. Please reach out and write me an email. Thanks!
+-- 📫 Friends, if you need to talk to me. Please reach out and write me an email. Thanks
 
 -- 🌅 My brothers and sisters, may we offer what we do, and what we say, to bring glory to the Lord our God. It is right. We ought to give God the honor, all thanks-giving, and praise -- with what it is we do, and, with what it is we say. May the Lord our God be glorified in all things. Remember, apart and without God. We are helpless. We cannot do anything on our own. May I speak? I think we are alive for our unifying purpose of loving and serving God. From what I have learned, serving God means loving and helping other people. Which begins inside our homes -- with our families, then to our friends, and then, so on going forward. My friends, let us choose to become a part, no matter how small we are, let us become a part of the healing salve of God.
 
